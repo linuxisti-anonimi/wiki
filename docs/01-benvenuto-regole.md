@@ -101,6 +101,6 @@ Apri un thread nel canale #💡-idee-proposte su Discord. Se piace alla communit
 
 ---
 
-Ultimo aggiornamento: [data]
+Ultimo aggiornamento: 21/04/2026
 
 Per domande o segnalazioni, contatta un admin su Discord.
